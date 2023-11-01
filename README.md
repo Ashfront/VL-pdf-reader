@@ -1,2 +1,2 @@
 # Shimmy
-Pointless shit
+Shimmy shimmy yay shimmy yay shimmy ya (drake) Swalalala
